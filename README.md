@@ -6,4 +6,3 @@
     * contact@jaronburtnett.net
     * **[Website](jaronburtnett.net)**
     * **[LinkedIn](https://www.linkedin.com/in/jaron-burtnett/)**
-    * **[Upwork](https://www.upwork.com/freelancers/~0142aab410ad5fa096)**
